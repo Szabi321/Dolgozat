@@ -1,1 +1,1 @@
-# Dolgozat
+# Balogh Szabolcs
